@@ -1,2 +1,0 @@
-# infMikeyD.github.io
-Receptenwebsite
